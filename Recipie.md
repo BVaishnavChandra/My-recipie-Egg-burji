@@ -5,7 +5,7 @@
 4. Wait , Untill they are sufficiently boiled and next add onion slices.
 5. After , following the above steps ,add Sufficient turmeric powder , chilli powder and salt as per your taste.
 6. Also ,add ginger-garlic paste in the mixture.
-7. After sometime , when mixture looking good and evenly fried , Break the eggs in the mixture.
+7. After sometime , when mixture is looking good and evenly fried , Break the eggs in the mixture.
 8. After breaking the eggs , mix the mixture well.
 9. Keep it on the stove for 2 minutes.
 10. Then , turn off the Stove 
